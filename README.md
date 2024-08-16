@@ -7,3 +7,10 @@ Meu nome é Michelly Lopes
 -  Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 -  ### Você entrar em contato comigo 📫
+michellyklopes9@gmail.com
+
+
+
+
+
+![](https://media1.tenor.com/m/59KBqoE5hVkAAAAd/homero-indiferente.gif)
